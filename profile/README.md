@@ -2,7 +2,7 @@
 
 ![PachaMama Logo](https://www.pachamama.com/wp-content/themes/pachamama/images/pachamama-logo.png)
 
-Welcome to the PachaMama Community repository! This repository introduces the transformative and profound growth experienced within the ecological and spiritual community of PachaMama, located in Costa Rica. PachaMama serves as a platform for a deep voyage into healing, self-acceptance, and expansion of consciousness.
+Welcome to the PachaMama Community organization! PachaMama serves as a platform for a deep voyage into healing, self-acceptance, and expansion of consciousness.
 
 ## About PachaMama
 
