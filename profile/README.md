@@ -1,8 +1,10 @@
-# PachaMama Community
+# Pachamama Eco Village
 
 ![PachaMama Logo](https://www.pachamama.com/wp-content/themes/pachamama/images/pachamama-logo.png)
 
-Welcome to the PachaMama Community organization! PachaMama serves as a platform for a deep voyage into healing, self-acceptance, and expansion of consciousness.
+Welcome to Pachamama Eco Village's organization! 
+
+PachaMama is a powerful gateway to profound, transformative growth. The ecological, spiritual community of PachaMama located in Costa Rica, is a platform for a deep voyage into healing, self-acceptance, and expansion of consciousness.
 
 ## About PachaMama
 
