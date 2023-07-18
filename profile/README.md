@@ -36,6 +36,6 @@ Gathering as a family to pray, heal, and sing on the wings of musical masterpiec
 
 ## Contact
 
-For more information about PachaMama, you can visit the [official website](https://www.pachamama.com/) or reach out to the community at [contact@pachamama.com](mailto:contact@pachamama.com).
+For more information about PachaMama, you can visit the [official website](https://www.pachamama.com/) or reach out to the community at [info@pachamama.com](mailto:info@pachamama.com).
 
 Let your journey to profound growth begin! 🌿✨
